@@ -1,1 +1,1 @@
-shorturl.at/aESXZ
+https://shorturl.at/aESXZ
